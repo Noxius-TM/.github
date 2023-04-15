@@ -1,2 +1,2 @@
 
-[![Noxius](https://discordapp.com/api/guilds/1090911534013755442/widget.png?style=banner2)](https://discord.gg/e5nkYEKkQc)
+[![Noxius](https://discordapp.com/api/guilds/1096452467597791342/widget.png?style=banner2)](https://projectnoxius.xyz/discord)
